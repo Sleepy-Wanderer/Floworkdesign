@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @FuzzWil
+- 👋 Hi, I’m @Floworkdesign
 - 👀 I’m interested in graphics and coding
 - 🌱 I’m currently learning concept design and coding
 
